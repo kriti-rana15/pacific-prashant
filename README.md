@@ -4,8 +4,9 @@
 ## Here's some fun facts about me: <img width="120" align="right" src="https://user-images.githubusercontent.com/83504276/146778999-93e901fd-80eb-4118-8a0d-39df011e32b4.png">
 
   -  **I am a ***Coder***⚡🧙🏻‍♂️**
+  -  **I am a ***DSA LOVER***⚡🧙🏻‍♂️**
   -  **I'm a enthusiastic web designer👩🏻‍💻**
-  -  **I am a true Astronomy lover 🔬**
+  -  **I am a Spiritual person🔬**
   -  **I'm eager to Learn and udertake new challenges 🌊**
 
 <hr><br>
